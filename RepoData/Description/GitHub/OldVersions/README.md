@@ -1,0 +1,1 @@
+📽️🌐️➕️➕️💾️ PDNET++ or PDSNET++ (Public Domain streaming Network Plus (plus)) is a P2P streaming service for public domain content that was previously under Copyright for a long time (1928 or older, as of 2024, January 1st) a place to watch Disney content (such as Steamboat Willie) legally without DRM or ads.
